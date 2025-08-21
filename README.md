@@ -41,7 +41,7 @@
             <td>不限制</td>
             <td>15</td>
             <td>
-                <a href="http://v2speeds.lmvipaff.com/register?aff=Z6qxg6j5">立即购买</a>
+                <a href="https://www.totorocloud.net/register?aff=Z6qxg6j5">立即购买</a>
             </td>
         </tr>
         <tr>
@@ -50,7 +50,7 @@
             <td>不限制</td>
             <td>30</td>
             <td>
-                <a href="http://v2speeds.lmvipaff.com/register?aff=Z6qxg6j5">立即购买</a>
+                <a href="https://www.totorocloud.net/register?aff=Z6qxg6j5">立即购买</a>
             </td>
         </tr>
         <tr>
@@ -59,7 +59,7 @@
             <td>不限制</td>
             <td>60</td>
             <td>
-                <a href="http://v2speeds.lmvipaff.com/register?aff=Z6qxg6j5">立即购买</a>
+                <a href="https://www.totorocloud.net/register?aff=Z6qxg6j5">立即购买</a>
             </td>
         </tr>
         <tr>
@@ -68,7 +68,7 @@
             <td>不限制</td>
             <td>100</td>
             <td>
-                <a href="http://v2speeds.lmvipaff.com/register?aff=Z6qxg6j5">立即购买</a>
+                <a href="https://www.totorocloud.net/register?aff=Z6qxg6j5">立即购买</a>
             </td>
         </tr>
         <tr>
@@ -77,7 +77,7 @@
             <td>不限制</td>
             <td>680</td>
             <td>
-                <a href="http://v2speeds.lmvipaff.com/register?aff=Z6qxg6j5">立即购买</a>
+                <a href="https://www.totorocloud.net/register?aff=Z6qxg6j5">立即购买</a>
             </td>
         </tr>
     </tbody>
@@ -87,9 +87,9 @@
 
 龙猫云(TotoroCloud)五一劳动节特别超值优惠活动：
 
-一：月付/季度/半年：享受85折优惠，优惠码：[spring85](http://v2speeds.lmvipaff.com/register?aff=Z6qxg6j5)
+一：月付/季度/半年：享受85折优惠，优惠码：[spring85](https://www.totorocloud.net/register?aff=Z6qxg6j5)
 
-二：年付/2年/3年：享受8折优惠，优惠码：[spring80](http://v2speeds.lmvipaff.com/register?aff=Z6qxg6j5)
+二：年付/2年/3年：享受8折优惠，优惠码：[spring80](https://www.totorocloud.net/register?aff=Z6qxg6j5)
 
 特别提示：年付以上商店里显示的已经是8折价格，配合优惠码购买3年付即可享受48折优惠，非常划算。
 
