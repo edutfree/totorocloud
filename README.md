@@ -4,8 +4,6 @@
 
 龙猫云备用地址： [https://web01.lmspeed.co](https://web01.lmspeed.co/register?aff=Z6qxg6j5)
 
-[![龙猫云(TotoroCloud)官网地址](totorocloud_20250422_214401.png)](https://www.totorocloud.net/register?aff=Z6qxg6j5)
-
 ## 龙猫云(TotoroCloud)特色简介
 
 龙猫云(TotoroCloud)怎么样？极具性价比 IPLC 专线加速器，节点采用Trojan协议，包含香港、台湾、新加坡、日本、美国、土耳其等热门优质线路，解锁ChatGPT以及Netflix、Disney+、Spotify等流媒体，晚高峰不限速，畅享极速稳定网络体验。
@@ -85,11 +83,11 @@
 
 ## 龙猫云(TotoroCloud)优惠码
 
-龙猫云(TotoroCloud)五一劳动节特别超值优惠活动：
+龙猫云(TotoroCloud) 七夕、开学季特别超值优惠活动：
 
-一：月付/季度/半年：享受85折优惠，优惠码：[spring85](https://www.totorocloud.net/register?aff=Z6qxg6j5)
+一：月付/季度/半年：享受85折优惠，优惠码：[kaixue85](https://www.totorocloud.net/register?aff=Z6qxg6j5)
 
-二：年付/2年/3年：享受8折优惠，优惠码：[spring80](https://www.totorocloud.net/register?aff=Z6qxg6j5)
+二：年付/2年/3年：享受8折优惠，优惠码：[kaixue80](https://www.totorocloud.net/register?aff=Z6qxg6j5)
 
 特别提示：年付以上商店里显示的已经是8折价格，配合优惠码购买3年付即可享受48折优惠，非常划算。
 
