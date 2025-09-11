@@ -1,8 +1,8 @@
 # 龙猫云(TotoroCloud)官网地址2025最新入口 + 限时优惠码
 
-官网地址： [https://www.totorocloud.net](https://www.totorocloud.net/register?aff=Z6qxg6j5)
+官网地址： [totorocloud.net](https://www.totorocloud.net/register?aff=Z6qxg6j5)
 
-备用直连： [https://web01.lmspeed.co](https://web01.lmspeed.co/register?aff=Z6qxg6j5)
+备用直连： [lmspeed.co](https://web01.lmspeed.co/register?aff=Z6qxg6j5)
 
 ## 龙猫云(TotoroCloud)特色简介
 
