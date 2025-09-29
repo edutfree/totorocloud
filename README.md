@@ -4,6 +4,16 @@
 
 备用直连： [lmspeed.co](https://web01.lmspeed.co/register?aff=Z6qxg6j5)
 
+## 龙猫云(TotoroCloud)优惠码
+
+龙猫云(TotoroCloud) 国庆中秋节特别超值优惠活动：
+
+一：月付/季度/半年：享受85折优惠，优惠码：[totoro85](https://www.totorocloud.net/register?aff=Z6qxg6j5)
+
+二：年付/2年/3年：享受8折优惠，优惠码：[totoro80](https://www.totorocloud.net/register?aff=Z6qxg6j5)
+
+特别提示：年付以上商店里显示的已经是8折价格，配合优惠码购买3年付即可享受48折优惠，非常划算。
+
 ---
 
 **温馨提示：任何服务均有跑路风险，请自行注意防范！**
@@ -88,20 +98,6 @@
         </tr>
     </tbody>
 </table>
-
-## 龙猫云(TotoroCloud)优惠码
-
-龙猫云(TotoroCloud) 七夕、开学季特别超值优惠活动：
-
-一：月付/季度/半年：享受85折优惠，优惠码：[kaixue85](https://www.totorocloud.net/register?aff=Z6qxg6j5)
-
-二：年付/2年/3年：享受8折优惠，优惠码：[kaixue80](https://www.totorocloud.net/register?aff=Z6qxg6j5)
-
-特别提示：年付以上商店里显示的已经是8折价格，配合优惠码购买3年付即可享受48折优惠，非常划算。
-
-## 龙猫云(TotoroCloud)跑路了吗？
-
-暂时没有。不过加速器总会有跑路风险，为尽可能减少损失，选购套餐可按月支付。
 
 ---
 
