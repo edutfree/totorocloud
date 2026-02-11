@@ -6,21 +6,13 @@
 
 ## 龙猫云(TotoroCloud)优惠码
 
-龙猫云(TotoroCloud) 2025/2026年双旦活动开启：
+龙猫云(TotoroCloud)2026年春节活动开启：
 
-一：月付/季度/半年：享受85折优惠，优惠码：[totoro852026](https://w04.lmweb.cc/register?aff=Z6qxg6j5)
+一：月付/季度/半年：享受85折优惠，优惠码：[chinese85](https://w04.lmweb.cc/register?aff=Z6qxg6j5)
 
-二：年付/2年/3年：享受8折优惠，优惠码：[totoro802026](https://w04.lmweb.cc/register?aff=Z6qxg6j5)
+二：年付/2年/3年：享受8折优惠，优惠码：[chinese80](https://w04.lmweb.cc/register?aff=Z6qxg6j5)
 
 特别提示：年付以上商店里显示的已经是8折价格，配合优惠码购买3年付即可享受48折优惠，非常划算。
-
----
-
-**温馨提示：任何服务均有跑路风险，请自行注意防范！**
-
-**本页面仅分享网络信息，不做推荐，有问题请自行联系服务商处理！**
-
----
 
 ## 龙猫云(TotoroCloud)特色简介
 
