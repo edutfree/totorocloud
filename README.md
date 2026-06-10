@@ -1,16 +1,16 @@
 # 龙猫云(TotoroCloud)官网最新地址
 
-官网地址： [totorocloud.net](https://a52.lml2vipaff05.cc/register?aff=Z6qxg6j5)
+官网地址： [totorocloud.net](https://lml2vipaff05.cc/register?aff=Z6qxg6j5)
 
-备用直连： [lmspeed.co](https://a52.lml2vipaff05.cc/register?aff=Z6qxg6j5)
+备用直连： [lmspeed.co](https://lml2vipaff05.cc/register?aff=Z6qxg6j5)
 
 ## 龙猫云(TotoroCloud)优惠码
 
 龙猫云(TotoroCloud)2026年春节活动开启：
 
-一：月付/季度/半年：享受85折优惠，优惠码：[chinese85](https://a52.lml2vipaff05.cc/register?aff=Z6qxg6j5)
+一：月付/季度/半年：享受85折优惠，优惠码：[chinese85](https://lml2vipaff05.cc/register?aff=Z6qxg6j5)
 
-二：年付/2年/3年：享受8折优惠，优惠码：[chinese80](https://a52.lml2vipaff05.cc/register?aff=Z6qxg6j5)
+二：年付/2年/3年：享受8折优惠，优惠码：[chinese80](https://lml2vipaff05.cc/register?aff=Z6qxg6j5)
 
 特别提示：年付以上商店里显示的已经是8折价格，配合优惠码购买3年付即可享受48折优惠，非常划算。
 
@@ -49,7 +49,7 @@
             <td>不限制</td>
             <td>15</td>
             <td>
-                <a href="https://a52.lml2vipaff05.cc/register?aff=Z6qxg6j5">立即购买</a>
+                <a href="https://lml2vipaff05.cc/register?aff=Z6qxg6j5">立即购买</a>
             </td>
         </tr>
         <tr>
@@ -58,7 +58,7 @@
             <td>不限制</td>
             <td>30</td>
             <td>
-                <a href="https://a52.lml2vipaff05.cc/register?aff=Z6qxg6j5">立即购买</a>
+                <a href="https://lml2vipaff05.cc/register?aff=Z6qxg6j5">立即购买</a>
             </td>
         </tr>
         <tr>
@@ -67,7 +67,7 @@
             <td>不限制</td>
             <td>60</td>
             <td>
-                <a href="https://a52.lml2vipaff05.cc/register?aff=Z6qxg6j5">立即购买</a>
+                <a href="https://lml2vipaff05.cc/register?aff=Z6qxg6j5">立即购买</a>
             </td>
         </tr>
         <tr>
@@ -76,7 +76,7 @@
             <td>不限制</td>
             <td>100</td>
             <td>
-                <a href="https://a52.lml2vipaff05.cc/register?aff=Z6qxg6j5">立即购买</a>
+                <a href="https://lml2vipaff05.cc/register?aff=Z6qxg6j5">立即购买</a>
             </td>
         </tr>
         <tr>
@@ -85,7 +85,7 @@
             <td>不限制</td>
             <td>680</td>
             <td>
-                <a href="https://a52.lml2vipaff05.cc/register?aff=Z6qxg6j5">立即购买</a>
+                <a href="https://lml2vipaff05.cc/register?aff=Z6qxg6j5">立即购买</a>
             </td>
         </tr>
     </tbody>
